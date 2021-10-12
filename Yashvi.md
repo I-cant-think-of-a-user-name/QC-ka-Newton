@@ -1,3 +1,4 @@
+<pre>
 Happiessttt Birthday Vaishnavii!!
 
 As you know, Yashvi is Bhut(ada), so Yashvi's heart is dead.
@@ -72,3 +73,4 @@ OH oh oh oh OH
  ~(  (>  ~(  (>  ~(  (>
   /  \    /  \    /  \  
 oh oh OH OH!
+</pre>
